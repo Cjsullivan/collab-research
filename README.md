@@ -7,4 +7,5 @@ ahhhh yeah mate its ON!!!!!!!
 
 YAS QUEEN
 
-surf will be on in  t-minus 4 minutes
+its going to be shitty ad they are going to run the girls semis
+
